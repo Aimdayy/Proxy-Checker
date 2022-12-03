@@ -1,2 +1,2 @@
-# Proxy-Checker
-Check your proxies!
+CREATED BY DAY
+Twitch Botting! https://discord.gg/h7PhtpYX
